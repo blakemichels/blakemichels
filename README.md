@@ -1,5 +1,5 @@
 ### Hi there 👋
 
-**blakemichels/blakemichels** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+**BLAKEMICHELSS/BLIZZY-PRODUCTIONS** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
 
